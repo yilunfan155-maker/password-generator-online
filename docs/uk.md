@@ -17,6 +17,10 @@
 
 password generator, strong password generator, random password, secure password, online password tool, 斜械蟹泻芯褕褌芯胁薪芯 芯薪谢邪泄薪 password generator, 斜械蟹泻芯褕褌芯胁薪芯 芯薪谢邪泄薪 online tool, Mini-Tools password generator
 
+## Long-tail keywords
+
+generate strong random password online, create secure password with symbols, random password generator without signup, make temporary password online, password generator with custom length, create password with numbers and special characters, strong password for new account, secure password generator for daily use
+
 ## Note
 
 袧械 胁胁芯写褜褌械 锌褉懈胁邪褌薪褨, 褔褍褌谢懈胁褨 邪斜芯 泻芯薪褎褨写械薪褑褨泄薪褨 写邪薪褨, 褟泻褖芯 薪械 褉芯蟹褍屑褨褦褌械, 褟泻 胁芯薪懈 芯斜褉芯斜谢褟褞褌褜褋褟.

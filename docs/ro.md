@@ -17,6 +17,10 @@ Ghid pentru Strong Password Generator Online. Mini-Tools provides this browser-b
 
 password generator, strong password generator, random password, secure password, online password tool, gratuit online password generator, gratuit online online tool, Mini-Tools password generator
 
+## Long-tail keywords
+
+generate strong random password online, create secure password with symbols, random password generator without signup, make temporary password online, password generator with custom length, create password with numbers and special characters, strong password for new account, secure password generator for daily use
+
 ## Note
 
 Nu introduce date private, sensibile sau confiden葲iale f膬r膬 s膬 卯n葲elegi procesarea.

@@ -17,6 +17,10 @@ K谋lavuz: Strong Password Generator Online. Mini-Tools provides this browser-ba
 
 password generator, strong password generator, random password, secure password, online password tool, 眉cretsiz online password generator, 眉cretsiz online online tool, Mini-Tools password generator
 
+## Long-tail keywords
+
+generate strong random password online, create secure password with symbols, random password generator without signup, make temporary password online, password generator with custom length, create password with numbers and special characters, strong password for new account, secure password generator for daily use
+
 ## Note
 
 Nas谋l i艧lendi臒ini anlamadan 枚zel, hassas veya gizli veri girmeyin.

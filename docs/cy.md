@@ -17,6 +17,10 @@ Canllaw ar gyfer Strong Password Generator Online. Mini-Tools provides this brow
 
 password generator, strong password generator, random password, secure password, online password tool, am ddim ar-lein password generator, am ddim ar-lein online tool, Mini-Tools password generator
 
+## Long-tail keywords
+
+generate strong random password online, create secure password with symbols, random password generator without signup, make temporary password online, password generator with custom length, create password with numbers and special characters, strong password for new account, secure password generator for daily use
+
 ## Note
 
 Peidiwch 芒 rhoi data preifat, sensitif neu gyfrinachol heb ddeall y prosesu.
